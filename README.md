@@ -1,4 +1,3 @@
-| ![1cun.jpg](https://cdn.nlark.com/yuque/0/2021/jpeg/13004129/1618199263375-617787e5-0d65-4724-81be-dc57d65c88e4.jpeg#align=left&display=inline&height=228&margin=%5Bobject%20Object%5D&name=1cun.jpg&originHeight=2604&originWidth=1860&size=471245&status=done&style=none&width=163)
 📞Mobile: 13518608140
 🏘Native place: Heze City, Shandong Province
 📧E-mail: [f13518608140@163.com](mailto:f13518608140@163.com)
